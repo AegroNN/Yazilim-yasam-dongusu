@@ -1,1 +1,1 @@
-# Yaz-l-m-Ya-am-D-ng-s-
+Yazilim yasam dongusu
